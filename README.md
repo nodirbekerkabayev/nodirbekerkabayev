@@ -30,9 +30,9 @@ Here are some of my favorite projects:
 ---
 
 ## 📫 How to Reach Me:
-- Email: [nodirbekerkabayev@example.com](mailto:nodirbekerkabayev@example.com)  
+- Email: [erkabayevnodirbek@gmail.com](mailto:erkabayevnodirbek@gmail.com)  
 - LinkedIn: [Nodirbek Erkaboyev](https://linkedin.com/in/nodirbekerkabayev)  
-- Portfolio: [nodirbekerkabayev.dev](https://your-portfolio-link.com)
+- Portfolio: [nodirbekerkabayev.dev](https://t.me/nodirbekerkabayev)
 
 ---
 
